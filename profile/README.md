@@ -8,7 +8,7 @@ You can install this software on Windows, Mac, and Linux as well as run it on AR
 
 Pianoteq pro free download
 
-Pianoteq pro crack
+Pianoteq pro crck
 
 Pianoteq PRO price
 
